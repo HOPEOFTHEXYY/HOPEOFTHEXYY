@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @HOPEOFTHEXYY
-- 👀 I’m interested in AEG
+- 👀 I’m interested in ARG
 - 🌱 I’m currently learning new things
 
 <!---
